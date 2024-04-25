@@ -1,1 +1,1 @@
-# Tunapanda minazi kwa hospitali
+# Tumemaliza kunapanda minazi kwa hospitali
